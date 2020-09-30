@@ -1,0 +1,1 @@
+hmm tak to jo celkem no dava to 
